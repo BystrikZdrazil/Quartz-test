@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Welcome to Quartz 4
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Welcome, enjoy your stay here. This is just a vault to see if we can really publish an Obsidian vault to the web, which means building it in HTML, which we need to host something on a Raspberry Pi. Test it out and tell us what you like and hate.
