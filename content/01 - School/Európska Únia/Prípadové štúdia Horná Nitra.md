@@ -1,0 +1,1 @@
+1. Najefektívnejší fond je v tomto prípade podľa mňa EFRR, ktorý zabezpečil nové pracovne pozície a tým udržal ľudí v regióne, možno aj nejakých ešte pritiahol. Veľmi efektívny fond je však podľa mňa aj ESF+, pretože to pomohlo bývalom baníkom znovu sa zamestnať v iných odvetviach. Dobrým fondom je však aj EPFRV, keďže pomohol obnovit pôdu a lesy poškodené po baníckej činnosti

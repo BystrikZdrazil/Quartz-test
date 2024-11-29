@@ -1,0 +1,1 @@
+Pod nadpis "*spätný servis*" **treba napísať meno**, koho riešim

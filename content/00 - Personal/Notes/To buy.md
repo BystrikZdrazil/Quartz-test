@@ -1,0 +1,3 @@
+https://m.alza.sk/fixed-typee-na-apple-ipad-pro-11-a-ipad-air-10-9-cz-cierne-d12585410.htm?kampan=adw4_prislusenstvi-pro-mt_pla_all_bfr_bfr_m_9210204___FXDDb238_678462975594_~160229294812~&gbraid=0AAAAAD2xsm6K-k_TiUSRej2RPtdbB9uk9&gclid=CjwKCAiA9IC6BhA3EiwAsbltOJmnfTc5syGVHl8ra7Qnika0DUIPyqNCsIWA11cNodINNBRkvGubRBoCVN0QAvD_BwE
+
+https://tvrdeneskla.eu/jp-magnetic-keyboard-mk01-puzdro-na-tablet-s-displejom-ipad-10-9-2022-ipad-10-cierne?gad_source=1&gbraid=0AAAAACq18Kks6XtHbbgMFB-dMVi3EFBym&gclid=CjwKCAiA9IC6BhA3EiwAsbltOGU_dM5ZHc1n2Jzb_hKW3MX4-bBQMCEcEuNeyt-li9cLiUqPbdrAHBoCehoQAvD_BwE

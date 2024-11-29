@@ -1,0 +1,2 @@
+Skladacie sedadlo, ktoré človek postaví na ľavičku alebo iný povrch bez operadla. Malo by to pánty na jednom konci a otváralo sa podobne ako laptop. Bolo by to o veľkosti cca 18”, avšak to by chcelo bližšie testovanie čo sa týka pomeru medzi ease of use a komfortom.
+![[portable-backrest-sketch.excalidraw]]

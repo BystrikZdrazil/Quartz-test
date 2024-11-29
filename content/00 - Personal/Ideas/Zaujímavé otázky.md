@@ -1,0 +1,1 @@
+1. Chcel(a) by si radšej dostávať každý mesiac 20000, avšak môžeš minúť len túto sumu, nemôžeš si ani nejak privyrobiť, alebo by si chcel(a) radšej skúsiť ako to pôjde a zarábať si na seba?

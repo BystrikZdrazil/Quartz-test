@@ -1,0 +1,7 @@
+# Zanshin
+**Zanshin** ([Japanese](https://en.wikipedia.org/wiki/Japanese_language "Japanese language"): 残心) is a state of awareness; of relaxed alertness, in [Japanese martial arts](https://en.wikipedia.org/wiki/Japanese_martial_arts "Japanese martial arts"). A literal translation of **zanshin** is "remaining mind".
+In _[karate](https://en.wikipedia.org/wiki/Karate "Karate")_, **zanshin** is the state of total awareness. It means being aware of one's surroundings and enemies, while being prepared to react.
+# Fudōshin
+**Fudōshin** ([Japanese](https://en.wikipedia.org/wiki/Japanese_language "Japanese language"): 不動心) is a state of [equanimity](https://en.wikipedia.org/wiki/Equanimity "Equanimity") or imperturbability (literally and metaphorically, "immovable mind", "immovable heart" or "unmoving heart"). It is a philosophical or mental dimension to Japanese martial arts which contributes to the effectiveness of the advanced practitioner.
+# Mushin
+It refers to an absence of [clinging](https://en.wikipedia.org/wiki/Up%C4%81d%C4%81na "Upādāna"), [conceptual proliferation](https://en.wikipedia.org/wiki/Conceptual_proliferation "Conceptual proliferation"), or being stuck in thought. In martial arts, it is described as the state at which a master is so at one with his art that his body naturally and spontaneously responds to all challenges without thought. This has been compared to the psychological concept of **flow** and "being in the zone"
